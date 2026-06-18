@@ -1,4 +1,4 @@
-![Banner](https://raw.githubusercontent.com/lazych/archived-leaked-srcs-and-tools/refs/heads/main/repo-stuff/standard.gif)
+![drakE GIVING MONEY HELP OMG ONG](https://raw.githubusercontent.com/lazych/archived-leaked-srcs-and-tools/refs/heads/main/repo-stuff/v3uLzk7w.gif)
 
 dont ban this repo github 💔 and fork it
 
